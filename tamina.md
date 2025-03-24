@@ -1,0 +1,4 @@
+- Windows ( Ubuntu ist neu für mich)
+- Student des Lebens 0-100, Produktionshelferin für ein Postunternehmen 0-20
+- Zeichnen, Basteln, Serien, Videospiele, Lesen
+- youtube.com
