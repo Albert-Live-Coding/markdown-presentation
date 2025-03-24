@@ -1,0 +1,4 @@
+- OS du nutzt : Ubuntu, Windows (und kenne mich mit AppleOS, Fedora, Kali)
+- Musiker 0 & 100
+- hobbies: musizieren, programmieren
+- eine Webseite: imslp.org, awwwards.com
