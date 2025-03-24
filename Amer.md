@@ -1,0 +1,5 @@
+- OS du nutzt
+- meine letzte Tätigkeit 0 - 100 einschätzen
+- hobbies
+- eine Webseite
+- 
