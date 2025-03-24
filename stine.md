@@ -1,0 +1,4 @@
+- OS du nutzt : Windows, Ubuntu über WSL (noch)
+- meine letzte Tätigkeit 0 - 100 einschätzen Bürokraft 60
+- hobbies : Gaming (PC und Konsole), Nähen (Kleidung, Taschen, usw.), Handarbeiten (häkeln, stricken)
+- eine Webseite : [GW2-Homepage](https://www.guildwars2.com/de/)
