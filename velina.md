@@ -1,0 +1,4 @@
+- Windows, Ubuntu
+- Sortiererin bei der Deutsche Post 20
+- lesen, spazieren
+- google
